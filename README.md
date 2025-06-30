@@ -35,7 +35,7 @@ Soy un **Desarrollador Fullstack ** apasionado por construir soluciones escalabl
 ### **📫 Conectemos:**
 
 * **LinkedIn:** [https://www.linkedin.com/in/juaneliezer23/](https://www.linkedin.com/in/juaneliezer23/)
-* **Email:** [tu.correo@example.com](mailto:tu.correo@example.com) (Opcional)
+* **Email:** [chirinosjuane@gmail.com](mailto:chirinosjuane@gmail.com) (Opcional)
 
 ---
 
